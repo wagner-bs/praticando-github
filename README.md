@@ -1,1 +1,1 @@
-Estou praticando! A pratica leva ao bom trabalho. # praticando-github
+Estou praticando! A pratica leva a excelência!. # praticando-github
